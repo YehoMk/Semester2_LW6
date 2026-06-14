@@ -30,4 +30,4 @@ $$\frac{5505}{3} = (ост.0) \Rightarrow C_{3} = 0$$
 
 ---
 
-Відео захисту: 
+Відео захисту: https://www.youtube.com/watch?v=N3mO3Rspwrc
